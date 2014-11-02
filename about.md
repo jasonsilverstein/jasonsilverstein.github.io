@@ -4,12 +4,10 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+### Professional
 
-### More Information
-
-A place to include any other types of information that you'd like to include about yourself. 
+Bio
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[Email](mailto:jason.silverstein+website@gmail.com)
