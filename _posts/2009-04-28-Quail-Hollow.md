@@ -1,0 +1,37 @@
+Pulling into the wrong parking lot, I already was nervous. I, like one of our playing partners Chris, have no problem speaking to a thousand people. But I’d never hit a golf ball in front of a real gallery, and certainly I’d never been introduced to do so.
+
+As I chatted it up with the parking attendant (again in the wrong lot), he told me to turn around and go toward the clubhouse. As I put my car into reverse, another car came around the corner. Our vehicles kissed.
+
+I got out, thinking to myself “what a heckuva way to start the day.” But what do you know, the cars were perfectly fine! Literally no scratches were found… there was just a bent front license plate. I bent it back, handed my card over in case the bumper fell off tomorrow, and I parked and headed for the range. My co-worker and caddie Kasey met me, and for a little while, I calmed my nerves.
+
+An hour or so later, I stood with on the first tee with my teammates and our pro, Webb Simpson (who our team had selected the night prior). We were the second group off for the day, so there would be essentially 10 straight tee balls.
+
+After all had hit their drives, the guy with the last name of “Silverstein” — dead last — was up. By this time, the nerves had returned in full force… I could not feel my hands, they were shaking so much. (My wife would say later, “I’ve never seen him like that.”) I took the club back, and consciously realized I was closing my eyes. I’m not surewhat the heck I was doing or thinking, but I swung anyway.
+
+As could be expected by now, I missed everything. Let me repeat in other ways: I whiffed. Struck out. Suh-wing, batter! All that stuff.
+
+While I could have been pretty darned embarrassed, I still had to hit. So I stepped back, realized “oh man” I have to still hit, and then actually did make contact the 2nd time. Almost needless to say, I had a rough first hole, literally still nerve-shaking the whole way.
+
+Webb — who is a heckuva nice guy by the way — said something very nice to me, as did his caddie William. The gallery, which included my wife, a few friends and a ton of strangers, came up to me along the ropes and supported me with cheers. Support from inside the ropes, specifically my teammates, also helped me shake off the heebie-jeebies (technical term).
+
+The day changed for me immediately on the 2nd hole. I made a good swing, then a downhill, sidehill 12-foot putt that perfectly dropped in for par (net birdie) and was the team’s best score on the hole. [Break for the Pro-am rules: everyone played their own ball all day, and the best individual score per hole — with handicap — ended up as the team’s single score for the hole].
+
+Everyone on the team ended up with “oops” moments through the day… recovering from a bad shot to hit a good one, or pulling a hole out for the team. Admittedly, none were quite as disastrous as mine, but hey — these were our clients and I had to make sure I took the brunt!
+
+Memories of the day include Ken hitting a shot to like five feet on one of the hardest holes and his tee shot on 17. Roddey even carried our pro through some tough stretches. And that par/net eagle on 18 won the tournament for us, Chris. I also learned details about work and personal lives, such as Ken’s trips back and forth from Florida to Charlotte. And all of us have hopeful, cautious signs we’re working with in the marketplace.
+
+All in all, our collective attitudes carried us to a collective great day. And for good measure, when all the scores from all the team were totaled, we had won the Quail Hollow Championship Pro-Am.
+
+The old cliche may be true — “it’s not how you start, but how you finish.” And I’ll add: “your attitude and those who support you can make the difference.”
+
+Update After Publishing in 2009
+
+Our neighbors went to the real tournament on Friday, and based on our story decided to follow Webb around for a couple holes. If you’ve checked any scores, you’d have noticed he wasn’t having a great day by his standards, and he could have been sulking and not engaged with the crowd. As he waited to tee off, he noticed the neighbors’ nine-year-old and, out of nowhere, tossed him a ball and a tee.
+
+It’s important to know that Webb had no idea these were my neighbors — as far as he knew, these were simply folks out there having a great time at the course.
+
+What a class act. Webb’s got a huge fan in me.
+
+–
+
+Note: This originally appeared on 04/28/2009 as “Not How You Start” on the now-defunct ObserverInteractive.com blog when I was the Charlotte Observer’s Vice President of Interactive Media.
