@@ -3,9 +3,10 @@ layout: post
 title: Power of a Mentor
 ---
 
+***
+
 _Note: this post originally published in Nov. 2011._
 
-***
 
 In the mid-90s, I started a lifelong friendship with a man named Mick. His care for my success formed the basis of some of my most important management styles, as I worked for him first, left for another job, then ended up with Mick hiring me back to be his producer/boss. Aside from the “treat everyone equally” ethos this exchange taught me, Mick taught me the value of having a good mentor. I’ll explain using one of the many examples I could share of his teachings…
 
