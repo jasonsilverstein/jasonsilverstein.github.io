@@ -3,16 +3,16 @@ layout: default
 ---
 
 <div class="posts">
+  <h3>Recently</h3>
   {% for post in site.posts %}
     <article class="post">
 
-      <h2><a href="{{ site.baseurl }}{{ post.url }}">{{ post.title }}</a></h2>
-
+      <h3><a href="{{ site.baseurl }}{{ post.url }}">{{ post.title }}</a></h3>
       <!-- <div class="entry">
         {{ post.content | truncatewords:40}}
-      </div>-->
-
-      <a href="{{ site.baseurl }}{{ post.url }}" class="read-more">&raquo;</a>
+      </div>
+      <a href="{{ site.baseurl }}{{ post.url }}" class="read-more">&raquo;</a>-->
     </article>
+
   {% endfor %}
 </div>
