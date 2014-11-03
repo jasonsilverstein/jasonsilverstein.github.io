@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testing New Format
+title: Power of a Mentor
 ---
 
 _Note: this post originally published in Nov. 2011._
